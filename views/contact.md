@@ -1,0 +1,1 @@
+Please send me a message and I will usually get right back to you. I will always respond in 24 hours.

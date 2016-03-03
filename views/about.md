@@ -1,0 +1,1 @@
+We are a new traveling company, based in Kitchener ON. We offer the best travel deals throughout the KW area. If you wish to contact us, visit the contact page to send an email, or visit us in our office. 
